@@ -210,4 +210,4 @@ DNIe is available as a **full free version** with all features and updates inclu
 Unlock the full potential of your electronic DNI today. **Download DNIe free and streamline your online identification experience!**
 
 ---
-**Last updated:** 2026-11-01 23:24:47 UTC
+**Last updated:** 2026-11-02 03:33:39 UTC
